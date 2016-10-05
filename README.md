@@ -1,3 +1,3 @@
 # Portfolio
 
-Personal page for Melanie Keatley. Listing all my amazing accomplishments. And more!
+Personal page for Melanie Keatley.
